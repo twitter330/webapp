@@ -1,0 +1,6 @@
+kolapo
+omolaja
+kolox
+lajox
+
+
